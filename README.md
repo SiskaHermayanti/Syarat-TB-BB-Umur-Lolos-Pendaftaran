@@ -1,1 +1,1 @@
-# syarat-TB-BB-Umur-lolos-pendaftaran
+# Syarat Minimal TB, BB & Umur Lolos Suatu Pendaftaran 
